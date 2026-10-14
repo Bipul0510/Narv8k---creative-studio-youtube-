@@ -1,0 +1,4 @@
+Content list :
+
+- Gameplay Thumbnail
+-
